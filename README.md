@@ -7,3 +7,4 @@
 ![image](https://github.com/NB-Group/NB-software/assets/121747915/93e7fdf9-efbd-4f55-b50e-bb6336f9699e)
 ## 为什么叫NB软件
 瞎取的
+![image](https://github.com/NB-Group/NB-Group/assets/121747915/10a5bb15-ba0c-43e7-9568-4cb157d0b45f)
